@@ -7,7 +7,7 @@
 
 <td valign="top" align="center">
 
-<img src="https://media1.tenor.com/m/7KrxX20Zy9cAAAAd/rudeus-greyrat-mushoku-tensei.gif" width="250">
+<img src="https://media1.tenor.com/m/GWlxEB-HOxwAAAAd/reze-reze-csm.gif" width="250">
 
 </td>
 
