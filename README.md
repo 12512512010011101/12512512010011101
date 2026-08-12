@@ -7,7 +7,7 @@
 
 <td valign="top" align="center">
 
-<img src="https://media1.tenor.com/m/GWlxEB-HOxwAAAAd/reze-reze-csm.gif" width="250">
+<img src="https://media1.tenor.com/m/z6Njke2svYUAAAAC/chainsaw-man-csm.gif" width="250">
 
 </td>
 
